@@ -1,1 +1,0 @@
-# defio-pensamento-comp
